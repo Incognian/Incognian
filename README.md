@@ -1,4 +1,4 @@
-A beginner programmer who can't get a grip on his life.
+Some arrogant idiot who uses Incognito mode too often.
 
 If you're interested in my socials here they are:
 
